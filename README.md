@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=nahilanazar" alt="nahilanazar" /></a> </p>
 
-- 🌱 I’m currently learning **python**
+- I’m a Web Developer
 
 - 💬 Ask me about **My self nahila nazar a motivated student with formal knowledge gained through excellent classroom excellent communication and motivated individual with strong work ethic and also a team player.**
 
