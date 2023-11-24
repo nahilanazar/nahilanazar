@@ -7,7 +7,7 @@
 
 - I’m a Web Developer
 
-- 💬 Ask me about **My self nahila nazar a motivated student with formal knowledge gained through excellent classroom excellent communication and motivated individual with strong work ethic and also a team player.**
+- 💬 Ask me about **My self nahila nazar a motivated person with formal knowledge gained through excellent classroom excellent communication and motivated individual with strong work ethic and also a team player.**
 
 - 📫 How to reach me **nahilanazar777@gmail.com**
 
